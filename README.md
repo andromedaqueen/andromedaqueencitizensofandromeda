@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @andromedaqueen
+- 👀 I’m interested in content creation and web development.
+- 🌱 I’m currently learning how to code and develop.
+- 💞️ I’m looking to collaborate on anything.
+- 📫 How to reach me lydiamonday2580@gmail.com.
